@@ -1,4 +1,4 @@
-
+Enhance Any.do for Windows with instant Any.do for Windows Integration | offline-access + cloud-sync, the #1 integration. Includes offline-access and cloud-sync for a smoother and
 
 
 
